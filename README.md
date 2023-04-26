@@ -3,4 +3,4 @@
 家だと音楽作ったりしてますnekomannma.comです。
 <p>pythonとCを勉強中です。
 <p>i9 9900kは最強！異論は認めません。
-<p>一応私は日本人です。(I`m japanese)
+<p>一応私は日本人です。(I`m japanese)あんまり英語できません。(I can`t English)
